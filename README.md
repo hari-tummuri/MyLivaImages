@@ -16,3 +16,7 @@
 
 ![image](https://github.com/hari-tummuri/MyLivaImages/assets/104126503/736d2a54-2927-4fbb-bee3-4c387eeae62d)
 
+intel core ultra logo
+![Screenshot 2024-02-22 at 1 08 47 PM](https://github.com/hari-tummuri/MyLivaImages/assets/104126503/44270aa7-729a-4932-b797-2cc262f9e57c)
+
+
